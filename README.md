@@ -1,0 +1,1 @@
+# ginly-ai-privacy-policy
